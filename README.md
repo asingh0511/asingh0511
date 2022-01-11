@@ -1,1 +1,1 @@
-# Amritagit
+# Amrita
